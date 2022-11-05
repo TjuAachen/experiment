@@ -1,5 +1,1 @@
-### Hello world!
-
-Never never give up!
-
-COh captain, my captain
+Oh captain, my captain
