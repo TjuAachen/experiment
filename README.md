@@ -1,5 +1,5 @@
 ### Hello world!
 
-Never never give up!
+Never naver give up!
 
 COh captain, my captain
